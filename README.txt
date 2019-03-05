@@ -1,0 +1,1 @@
+This a briefing about about the assignments folder
